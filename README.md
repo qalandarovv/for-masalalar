@@ -1,0 +1,2 @@
+# for-masalalar
+masala yechish
